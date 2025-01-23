@@ -1,3 +1,7 @@
+
+![221352995-5ac18bdf-1a19-4f99-bbb6-77559b220470](https://github.com/user-attachments/assets/48733c51-17e7-46d7-be90-79c191692980)
+
+
 <h1 align="center">👋 Halo, Saya [Riqi]!</h1>
 <p align="center">
   🚀 <strong>Developer | Siswa SMK | Pecinta Teknologi</strong> 🚀
